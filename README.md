@@ -1,7 +1,7 @@
 # Hi , I'm Shiak Siraaj
 **A passionate Cloud Engineer || DevOps Engineer || Kafka Admin from India**
 
-Email Me 👉 ✉️ **shaiksiraaj@052** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **shaiksiraaj@052gamil.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** Mayuri Interns
 - 🌱 **I’m currently learning:** Vibe Coding
